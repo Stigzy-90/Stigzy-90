@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Stigzy-90
+- 👀 I’m interested in tech and economy
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on [To be updated]
+- 📫 How to reach me [To be updated]
